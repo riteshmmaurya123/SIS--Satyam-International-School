@@ -1,1 +1,0 @@
-# SIS--Satyam-International-School
